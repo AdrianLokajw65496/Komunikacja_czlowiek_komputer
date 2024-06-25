@@ -1,0 +1,1 @@
+# Komunikacja_czlowiek_komputer
